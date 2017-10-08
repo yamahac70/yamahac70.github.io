@@ -1,0 +1,1 @@
+# yamahac70.github.io
